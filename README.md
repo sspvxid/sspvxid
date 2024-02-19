@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sspvxid
 - 👀 I’m interested in "thinking"
 - 🌱 I’m currently learning "..."
-- 💞️ I’m looking to collaborate on "crax"
+- 💞️ I’m looking to collaborate on "crax.."
 - 📫 How to reach me "dont"
 - 😄 Pronouns: "rich"
 - ⚡ Fun fact: "why?"
